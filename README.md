@@ -1,1 +1,0 @@
-# privetnikitapoka.github.io
